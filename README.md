@@ -1,0 +1,1 @@
+# global-inquality-insights
